@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with rare scalping bot for derivatives | liquidation-sniping + webhook-support. Featuring liquidation-sniping and webhook-support,
 
 
 
